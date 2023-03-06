@@ -11,7 +11,7 @@
 
 - 📫 How to reach me in my Website **[Abanoub George*](https://abanoubgeorge.info/)*
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1VvCDhG3EfvvCgrWyDRxivTkdKJuMWqxs/view?usp=sharing](https://drive.google.com/file/d/1VvCDhG3EfvvCgrWyDRxivTkdKJuMWqxs/view?usp=sharing)
+- 📄 Know about my experiences [CV]https://drive.google.com/file/d/1VvCDhG3EfvvCgrWyDRxivTkdKJuMWqxs/view?usp=sharing)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
