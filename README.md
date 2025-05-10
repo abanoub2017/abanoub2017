@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abanoubgeorge136@gmail.com**
 
-- 📫 How to reach me in my Website **[Abanoub George*](https://abanoubgeorge.info/)*
+- 📫 How to reach me in my Website **[Abanoub George*]([https://abanoubgeorge.info/](https://abanoubgeorge.net/))*
 
 - 📄 Know about my experiences [CV]https://drive.google.com/file/d/1VvCDhG3EfvvCgrWyDRxivTkdKJuMWqxs/view?usp=sharing)
 
